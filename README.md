@@ -1,1 +1,1 @@
-Je construis des choses et parfois ce sont de bonnes choses.
+I build things, and sometimes they're good things.
